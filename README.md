@@ -1,2 +1,2 @@
 # synz123.github.io
-Test site
+fuck you site
